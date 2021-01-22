@@ -1,3 +1,3 @@
-*Fingersmith* by Sarah Waters
+*Fingersmith* by **Sarah Waters**
 
-*Aristotle and Dante Discover the Secrets of the Universe* by Benjamin Alire Sáenz
+*Aristotle and Dante Discover the Secrets of the Universe* by **Benjamin Alire Sáenz**
